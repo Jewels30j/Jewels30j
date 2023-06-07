@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning about herbs
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me email p.wdavis@hotmail.com 
-
+julieadavis4@gmail.com
 
 
 <!---
